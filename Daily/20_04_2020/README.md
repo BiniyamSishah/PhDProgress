@@ -4,3 +4,4 @@
 - discuss with Joel
 3) install openFoam on Professor's PC
 - Try is before Joel's class then ask him for help
+4) Attend Turbulence and CFD models course but before do the tutorials. 
