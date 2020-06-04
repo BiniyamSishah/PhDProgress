@@ -19,9 +19,8 @@ questions:
 4) Slowlly start working on the collabrative researches. 
 5) Help Professor write the " espression of interests with "Amazon web services". 
 6) End your relationship with Kidist. 
-7) time your work
-8) Continue excersising, eating and sleeping healthy, meeting friends and using your time effciently. 
-9) My name is not in the list 1-12 June, seeing the situation, I need to try returning to office.
+7) Continue excersising, eating and sleeping healthy, meeting friends and using your time effciently. 
+8) My name is not in the list 1-12 June, seeing the situation, I need to try returning to office after this period. 
  
 
 
