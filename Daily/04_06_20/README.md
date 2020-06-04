@@ -21,6 +21,7 @@ questions:
 6) End your relationship with Kidist. 
 7) time your work
 8) Continue excersising, eating and sleeping healthy, meeting friends and using your time effciently. 
+9) My name is not in the list 1-12 June, seeing the situation, I need to try returning to office.
  
 
 
