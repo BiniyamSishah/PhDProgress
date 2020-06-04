@@ -8,9 +8,14 @@ Total : 47.6 credits/ minimum is 42 credits before September....
 
 questions:
 
-1) Check how many credits IOF & AOF are and correct your course folder?
-2) Start working on the exams of the finished courses?
-3) write your PhD or paper.
+1) Check how many credits IOF & AOF are and correct your course folder?  sent Mattia an a text on whats up
+2) Start working on the exams of the finished courses? 
+   Fix appointment with A) Prof. A.Buttaro on Monday 08/06/20 .
+                        B) Prof. Daniele D' Agostino on Monday 08/06/20 .
+                        C) Prof. Joel Guerero on Monday 08/06/20 .
+                        D) Submit all homeworks' and Project title for T&CFDM course.
+                             - Tomorrow submit the project title. Up to Monday, submit all Homeworks. 
+3) Start writting your PhD and paper. You can ask only when you write Ok!
 4) Slowlly start working on the collabrative researches. 
 5) Help Professor write the " espression of interests with "Amazon web services". 
 6) End your relationship with Kidist. 
