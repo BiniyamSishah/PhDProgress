@@ -8,7 +8,7 @@ Total : 47.6 credits/ minimum is 42 credits before September....
 
 questions:
 
-1) Check how many credits IOF & AOF are and correct your course folder?  sent Mattia an a text on whats up
+1) Check how many credits IOF & AOF are and correct your course folder?  sent Mattia an a text on whats up, Mattia said 10 , but not sure
 2) Start working on the exams of the finished courses? 
    Fix appointment with A) Prof. A.Buttaro on Monday 08/06/20 .
                         B) Prof. Daniele D' Agostino on Monday 08/06/20 .
